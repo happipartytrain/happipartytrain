@@ -1,2 +1,2 @@
 ![ok](Untitled3458_20251012100636.png)
-MIMI/PHIL  .  he/it
+<p align=center> MIMI/PHIL  .  he/it
