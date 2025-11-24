@@ -1,11 +1,12 @@
 <div align="center">
 
-![ok](Untitled3458_20251012100636.png)
-![oh](https://komarev.com/ghpvc/?username=happipartytrain&color=657DEA&plastic&abbreviated=true) 
+![ok](ezgif-353fd5fae0bc1391-1.gif)
+![oh](https://komarev.com/ghpvc/?username=happipartytrain&color=f17d89&plastic&abbreviated=true) 
 
 MIMI/PHIL  .  he/it  .  16 Y/O
 
-![ok](Untitled3460_20251013211716.png)
+──── ୨୧ ────
+
 on ponytown most of the time but not all the time . if i don't respond to whispers im probably busy or distracted oops . I have trouble talking to new people so sorry if..im ever dry😢  .  I MISSPELL THING ALOT. either on accident or on purpose. oops.
   
-![ok](Untitled3460_20251013211716.png)
+![ok](tumblr_00b18041b1cbb8ef1bb8af4dab65b363_903d45fb_1280-1.png)
