@@ -3,7 +3,7 @@
 ![ok](ezgif-353fd5fae0bc1391-1.gif)
 ![oh](https://komarev.com/ghpvc/?username=happipartytrain&color=f17d89&plastic&abbreviated=true) 
 
-MIMI/PHIL  .  he/it  .  16 Y/O
+MIMI/VIVICA  .  any prns  .  16 Y/O
 
 ──── ୨୧ ────
 
